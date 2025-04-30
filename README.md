@@ -1,0 +1,1 @@
+# Skargi-na-lewego-i-lewy-procesor-polityk-w
